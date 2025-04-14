@@ -15,7 +15,7 @@ Profesional con Maestría en Ciencias de la Electrónica y especialización en D
 
 Soy un aprendedor empedernido y muy cuidadoso en los detalles. :gift:
 
-Me encanta descubrir nuevas formas de automiatizar mi trabajo. :robot:
+Me encanta descubrir nuevas formas de automatizar mi trabajo. :robot:
 
 Tengo un gran espíritu de trabajar en equipo. :handshake:
 
